@@ -35,6 +35,6 @@ Because I haven't DONE it so PLZ DONT CLICK IT
 
 ⬇️⬇️⬇️⬇️⬇️⬇️⬇️⬇️⬇️⬇️⬇️
 
- <span style="font-family:Papyrus; font-size:4em; color:red">dmdeng.cc</span>
+dmdeng.cc(dmdeng.cc)
 
 ⬆️⬆️⬆️⬆️⬆️⬆️⬆️⬆️⬆️⬆️
